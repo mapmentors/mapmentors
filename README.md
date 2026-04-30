@@ -1,4 +1,4 @@
-Hi 👋 My name is Map Mentors
+Hi We are Map Mentors - Spatial Research Lab
 ============================
 
 Research and Education Institute
